@@ -8,7 +8,7 @@ Current student at Becker College
 
 ### More Information
 
-Studying Interactive Media Design with a concentraion of Video Game Design
+Studying Interactive Media Design with a concentration of Video Game Design
 
 ### Contact me
 
